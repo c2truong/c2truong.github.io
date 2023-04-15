@@ -3,10 +3,10 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ----
 
-### Sprite Draws a House (Module 1)
+### Sprite Draws a House
 [https://drive.google.com/file/d/1qzmjMV-iTJIdYRVtZ3skAOlsNTvx05vS/view?usp=share_link](https://drive.google.com/file/d/1qzmjMV-iTJIdYRVtZ3skAOlsNTvx05vS/view?usp=share_link)
 
 ----
 
-### Using Repeats to Dance (Module 2)
+### Using Repeats to Dance
 [https://drive.google.com/file/d/14QpwWIZ84pEsLPb3KSCTBwviLLhxFlGK/view?usp=share_link](https://drive.google.com/file/d/14QpwWIZ84pEsLPb3KSCTBwviLLhxFlGK/view?usp=share_link)
