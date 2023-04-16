@@ -10,3 +10,8 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ### Using Repeats to Dance
 [https://drive.google.com/file/d/14QpwWIZ84pEsLPb3KSCTBwviLLhxFlGK/view?usp=share_link](https://drive.google.com/file/d/14QpwWIZ84pEsLPb3KSCTBwviLLhxFlGK/view?usp=share_link)
+
+----
+
+### Using Repeats to Animate Animals
+[https://drive.google.com/file/d/1CczREAxHlL9NHykZpZZ0Wp4_wcB08emN/view?usp=sharing](https://drive.google.com/file/d/1CczREAxHlL9NHykZpZZ0Wp4_wcB08emN/view?usp=sharing)
