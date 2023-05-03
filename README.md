@@ -30,3 +30,8 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ### Shapes and Variables
 [https://drive.google.com/file/d/1McM9rafTHTmEDSt0wcv54PPGLkZAZf5M/view?usp=share_link](https://drive.google.com/file/d/1McM9rafTHTmEDSt0wcv54PPGLkZAZf5M/view?usp=share_link)
+
+----
+
+### Soccer Conditional Loop
+[https://drive.google.com/file/d/1EzqLDJWX_n1ij2A_PX0vJ8_3A9OdSaEf/view?usp=sharing](https://drive.google.com/file/d/1EzqLDJWX_n1ij2A_PX0vJ8_3A9OdSaEf/view?usp=sharing)
