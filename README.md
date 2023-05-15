@@ -35,3 +35,8 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ### Soccer Conditional Loop
 [https://drive.google.com/file/d/1EzqLDJWX_n1ij2A_PX0vJ8_3A9OdSaEf/view?usp=sharing](https://drive.google.com/file/d/1EzqLDJWX_n1ij2A_PX0vJ8_3A9OdSaEf/view?usp=sharing)
+
+----
+
+### Bullseye If Else
+[https://drive.google.com/file/d/1-jG3VKeBIX3x-kFel09WHsxJuB2iMjPU/view?usp=share_link](https://drive.google.com/file/d/1-jG3VKeBIX3x-kFel09WHsxJuB2iMjPU/view?usp=share_link)
