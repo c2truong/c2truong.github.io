@@ -40,3 +40,8 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ### Bullseye If Else
 [https://drive.google.com/file/d/1-jG3VKeBIX3x-kFel09WHsxJuB2iMjPU/view?usp=share_link](https://drive.google.com/file/d/1-jG3VKeBIX3x-kFel09WHsxJuB2iMjPU/view?usp=share_link)
+
+----
+
+### Penguin at the Beach
+[https://drive.google.com/file/d/1DAWWRhKsr4i3ezbbCtm0A0xqHmgQbBl6/view?usp=share_link](https://drive.google.com/file/d/1DAWWRhKsr4i3ezbbCtm0A0xqHmgQbBl6/view?usp=share_link)
