@@ -45,3 +45,8 @@ My name is Caitlyn, and I'm a third year undergrad student at UC San Diego study
 
 ### Penguin at the Beach
 [https://drive.google.com/file/d/1DAWWRhKsr4i3ezbbCtm0A0xqHmgQbBl6/view?usp=share_link](https://drive.google.com/file/d/1DAWWRhKsr4i3ezbbCtm0A0xqHmgQbBl6/view?usp=share_link)
+
+----
+
+### Buried Treasure (and Conditionals)
+[https://drive.google.com/file/d/19QdywYIfq3fay4e228spCtza_MFn5TGC/view?usp=sharing](https://drive.google.com/file/d/19QdywYIfq3fay4e228spCtza_MFn5TGC/view?usp=sharing)
